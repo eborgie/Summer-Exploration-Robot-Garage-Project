@@ -6,4 +6,7 @@ Iteration 2: Chassis with Thin Steel sides and Aluminum top and bottom
 
 ![IMG_4479](https://github.com/user-attachments/assets/87c41d93-12bf-4e64-95a9-c1d4ca7d8b2c)
 
+![IMG_4415](https://github.com/user-attachments/assets/08130cdc-0db3-4e57-8f05-3abb77e2f5f0)
+
+
 
